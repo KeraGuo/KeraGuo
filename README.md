@@ -11,4 +11,11 @@ Here are some ideas to get you started:
 - 📫 How to reach me: keraguo06@gmail.com
 
 
--->happy you're here reading my life philosophy lol 
+-->
+- 🔭 I’m currently a high schooler in nyc 
+- 🌱 loves writing, philosophy, swimming...
+- 💬 Happy to chat about anything
+- 📫 How to reach me: keraguo06@gmail.com
+
+
+Happy you're here reading my life philosophy lol 
